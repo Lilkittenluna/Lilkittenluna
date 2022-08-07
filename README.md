@@ -1,0 +1,4 @@
+- ~(=^‥^)ノ Hi, I’m @Lilkittenluna - Luna-Mae is my full name but you can just call me luna!
+- 👀 I’m interested in ... Right now I'm into custom UI (windows and android) and rooting android devices.
+- 🌱 I’m currently learning ... How great life is when you dont worry about the little things.
+- 📫 How to reach me ... Email is on my profile, dont hesitate to reach out! ヾ(•ω•`)
